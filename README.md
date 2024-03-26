@@ -1,1 +1,1 @@
-acesse o link https://crrissss.github.io/atividadeEmGrupo/
+Trabalho em grupo realizado por Cristiane Ferreira, Eduardo Marinho Silva Ribas, Gabriel Capiotti e Rafael Henkel. O tema escolhido foi a franquia de jogos Dark Souls, famosa pela dificuldade de jogabilidade e grandes lutas com chefões.acesse o link para ver o resultado https://crrissss.github.io/atividadeEmGrupo/
